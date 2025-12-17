@@ -8,6 +8,6 @@
 
 👩‍💻 Useful resources - You can visit the Viajant Docs! https://useviajant.com.br/en/docs
 
-🍿 Fun facts - what does your team eat for breakfast? IDK
+🍿 Fun facts - Yeah, Viajant is from Brazil <3
 
 🖇️ Website: https://useviajant.com.br
